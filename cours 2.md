@@ -5,10 +5,10 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 
 ### https://forestalumina.com/en/
-Expliquer pourquoi vous avez choisi ce lien.
+Foresta Lumina est une expérience nocturne multimédia le long du Canyon de Coaticook à Québec. Je suis allé l'année dernière avec ma famille quand nous étions à Sherbrooke et j'ai adoré. C'étais une expérience imaginaire et fantastique, avec plusieurs différentes images projetés sur la nature, ce qui fait ressortir le surréalisme.
 
 ### https://vangoghdubai.com/#t
-Expliquer pourquoi vous avez choisi ce lien.  
+ En m'inspirant de la sortie de la semaine 3, quand nous sommes allé à Van Gogh mais à Montréal, j'ai choisi de prendre Van Gogh mais à Dubai, puisque c'est immense.
 
 ### https://designmuseum.org/
 Expliquer pourquoi vous avez choisi ce lien. 
