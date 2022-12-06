@@ -4,5 +4,12 @@ En ordre de préférence, faites une liste de 3 métiers qui vous intéressent. 
 
 Liste de 3 métiers qui m'intéresse:
 1. Conceptrice de site internet et application mobile
+- Ce métier m'intéresse car c'est un emplois qui utilise beaucoup la créativité qui est une de mes qualités fortes. Un autre point intéressant est qu'il y a le choix de travailler pour sois, par exemple, créer sa propre compagnie à domicile avec des contrats et pas nécessairement travailler pour une grande entreprise.
+
 2. Designer UX/Ui
-3. 
+- Le métier de designer UX et UI m'intéresse car UX obtien un rôle important qui cible à aider les personnes à avoir une éxperience plus facile en utilisant un produit et UI c'est plus la partie créatif en lien avec le design, ce que j'aime aussi.
+
+3.
+
+
+
