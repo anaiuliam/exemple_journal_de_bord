@@ -1,4 +1,5 @@
 # Cours 8
-## Ma vidéo
+## Retour sur la sortie
 
-Remettre le lien vers une vidéo que vous avez réalisée dans OBS. 
+## ABSENCE
+ 
